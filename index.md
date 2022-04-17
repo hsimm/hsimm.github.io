@@ -1,3 +1,3 @@
-## Welcome to Hector GitHub Page
+## Welcome to Hector's Page
 
 Work in progress
